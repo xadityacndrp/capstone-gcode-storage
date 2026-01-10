@@ -1,1 +1,0 @@
-Pradika Candra Aditiya
